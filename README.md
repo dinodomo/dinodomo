@@ -3,7 +3,7 @@
 　　　⠀ 　　　⠀ ⠀ ⠀ ⠀![image](https://github.com/user-attachments/assets/e9adb189-7b31-4304-92c5-a8f7b867daef)
 
 
-## BYI: my name's domo, not doma. i'm a dude whos multifandom and a multishipper, i like to draw in my spare time, im kinda scared of making  friends. i lile dinosaurs, nature, and random stuff.
+## BYI: my name's domo, not doma. i'm a dude whos multifandom and a multishipper, i like to draw in my spare time, im kinda scared of making  friends. i like dinosaurs, nature, and random stuff.
 
 
 ## Please read my strawpage for more info (it's kinda outdated) uhh my main fandom is dandy's world, you will usually find me in the DW area or at spawn.
