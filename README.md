@@ -1,4 +1,6 @@
-![image](https://github.com/user-attachments/assets/050a3d82-0fd2-4df0-907f-a368c236ee0e)
+
+
+
 
 ## BYI: my name's domo, not doma. i'm a dude whos multifandom and a multishipper, i like to draw in my spare time, im kinda scared of making  friends. i lile dinosaurs, nature, and random stuff.
 
